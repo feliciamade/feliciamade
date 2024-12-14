@@ -4,8 +4,6 @@
 I’m a graphic designer, illustrator, and aspiring software engineer currently enrolled in CodeCrew’s intensive 9-month software engineering bootcamp. With expertise in front-end web development, I specialize in creating visually compelling and functional digital experiences. As a freelance illustrator, I bring ideas to life with creativity and precision, seamlessly blending design and technology in my work.
 
 # 🌱 GitHub Stats:
-![](https://github-readme-stats.vercel.app/api?username=feliciamade&theme=omni&hide_border=false&include_all_commits=true&count_private=false)<br/>
-![](https://github-readme-streak-stats.herokuapp.com/?user=feliciamade&theme=omni&hide_border=false)<br/>
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=feliciamade&theme=omni&hide_border=false&include_all_commits=true&count_private=false&layout=compact)
 
 ---
