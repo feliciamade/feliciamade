@@ -1,7 +1,4 @@
-## Hi there 👋
-
-<!--
-**feliciamade/feliciamade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="826" alt="msmms" src="https://github.com/user-attachments/assets/1c5d5b5b-c252-45ab-a9cb-80b8ff26417c" />
 
 Here are some ideas to get you started:
 
