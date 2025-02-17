@@ -4,5 +4,5 @@
 Hello,world ! I’m a graphic designer, illustrator, and aspiring software engineer currently enrolled in CodeCrew’s intensive 9-month software engineering bootcamp. With expertise in front-end web development, I specialize in creating visually compelling and functional digital experiences. As a freelance illustrator, I bring ideas to life with creativity and precision, seamlessly blending design and technology in my work. :)
 
   ## 🌱 Most Recent Project 
-![Screenshot 2025-02-16 184404](https://github.com/user-attachments/assets/2135a7ce-047e-4a95-beb0-de27d6914b9b)
+![127 0 0 1_5500_index html (6)](https://github.com/user-attachments/assets/c23f1b4d-c1ef-4c11-a1d5-a29ace3bd0ea)
 ![Screenshot 2025-02-17 094541](https://github.com/user-attachments/assets/cc2c9c49-8d41-444e-9da1-f582484b9191)
