@@ -2,7 +2,8 @@
 
 # 🌱 About Me:
 Hello,world ! I’m a graphic designer, illustrator, and aspiring software engineer currently enrolled in CodeCrew’s intensive 9-month software engineering bootcamp. With expertise in front-end web development, I specialize in creating visually compelling and functional digital experiences. As a freelance illustrator, I bring ideas to life with creativity and precision, seamlessly blending design and technology in my work. :)
-Listening to: It's ok I'm ok (Tate McRae)
+ 
+ ## Listening to: It's ok I'm ok (Tate McRae)
 
   ## 🌱 Most Recent Project 
 ![Screenshot 2025-02-17 151326](https://github.com/user-attachments/assets/6e553b70-f210-4102-9975-3bc7da659529)
