@@ -6,4 +6,5 @@ Hello,world ! I’m a graphic designer, illustrator, and aspiring software engin
  ## Listening to: It's ok I'm ok (Tate McRae)
 
   ## 🌱 Most Recent Project 
-![Screenshot 2025-02-17 151326](https://github.com/user-attachments/assets/6e553b70-f210-4102-9975-3bc7da659529)
+![Screenshot 2025-02-17 155044](https://github.com/user-attachments/assets/895356c8-c440-4be4-9a58-336d5d80e6ae)
+
