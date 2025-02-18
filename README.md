@@ -7,7 +7,7 @@ Hello,world ! I’m a graphic designer, illustrator, and aspiring software engin
 
   ## 🌱 Most Recent Project 
  ![Screenshot 2025-02-17 194051](https://github.com/user-attachments/assets/13d3a1de-1d20-4b4f-82fe-c779b2e32c8a)
- ![127 0 0 1_5500_index html (8)](https://github.com/user-attachments/assets/fc438b3b-0d4f-41fa-92aa-b1491654b78c)
+![127 0 0 1_5500_index html (9)](https://github.com/user-attachments/assets/e2150fbc-1264-42c9-9e06-6eab2d707b24)
 ![Screenshot 2025-02-17 200954](https://github.com/user-attachments/assets/84cb86a3-f424-46d5-a8e8-c05b0670bc9a)
 
 
