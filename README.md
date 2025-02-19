@@ -7,7 +7,6 @@ Hello,world ! I’m a graphic designer, illustrator, and aspiring software engin
 
   ## 🌱 Most Recent Project 
 ![127 0 0 1_5500_index html (13)](https://github.com/user-attachments/assets/85479681-f664-457a-87d4-7884f5960c83)
-![127 0 0 1_5500_ecommerce-product-page-main_index html](https://github.com/user-attachments/assets/2ba6e648-53f5-4406-96c2-7337b849e381)
 ![Screenshot 2025-02-17 200954](https://github.com/user-attachments/assets/84cb86a3-f424-46d5-a8e8-c05b0670bc9a)
 
 
