@@ -5,7 +5,7 @@ I’m a graphic designer, illustrator, and aspiring software engineer currently 
  
  ## Listening to: It's ok I'm ok (Tate McRae) & All The Stars (Kendrick Lamar & SZA)
 ![Screenshot 2025-02-19 181903](https://github.com/user-attachments/assets/dc7528e0-f461-44be-a9df-4201f3133536)
-![127 0 0 1_5500_index html (24)](https://github.com/user-attachments/assets/76ad31a9-5c35-4809-99c9-004f9672d02f)
+![127 0 0 1_5500_index html (26)](https://github.com/user-attachments/assets/717407b8-6d90-4b63-b653-a2e63a4b1254)
 ![Screenshot 2025-02-17 200954](https://github.com/user-attachments/assets/84cb86a3-f424-46d5-a8e8-c05b0670bc9a)
 
 
