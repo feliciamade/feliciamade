@@ -4,7 +4,7 @@
 I’m a graphic designer, illustrator, and aspiring software engineer currently enrolled in CodeCrew’s intensive 9-month software engineering bootcamp. With expertise in front-end web development, I specialize in creating visually compelling and functional digital experiences.
  
  ## Listening to: It's ok I'm ok (Tate McRae) & All The Stars (Kendrick Lamar & SZA)
- <img width="677" alt="calculator" src="https://github.com/user-attachments/assets/e66bae6d-5d48-4dce-9697-0bbd4575c520" />
+<img width="677" alt="calculator" src="https://github.com/user-attachments/assets/049fa188-0373-4a71-9d5d-d2a235c4f568" />
 ![127 0 0 1_5500_index html (28)](https://github.com/user-attachments/assets/2421d81f-9c07-493a-a0c6-21dd1dded00f)
 ![Screenshot 2025-02-17 200954](https://github.com/user-attachments/assets/84cb86a3-f424-46d5-a8e8-c05b0670bc9a)
 
