@@ -2,7 +2,7 @@
 
 # 🌱 About Me:
 I’m a graphic designer, illustrator, and aspiring software engineer.
-![127 0 0 1_5500_index html (29)](https://github.com/user-attachments/assets/67551979-dc9a-40a3-ac37-1782d1ed69c2)
+![127 0 0 1_5500_index html (30)](https://github.com/user-attachments/assets/75fb5037-db96-4287-892d-60114dfe9819)
 ![Screenshot 2025-02-17 200954](https://github.com/user-attachments/assets/84cb86a3-f424-46d5-a8e8-c05b0670bc9a)
 
 
