@@ -1,6 +1,4 @@
-<img width="941" alt="Screenshot 2025-04-08 070111" src="https://github.com/user-attachments/assets/e595374e-5c94-4676-b0d9-8df5b64bab1e" />
-<img width="942" alt="Screenshot 2025-04-08 070135" src="https://github.com/user-attachments/assets/5c446dfa-401f-4069-aafa-7b9c53b11d5b" />
-
+https://github.com/user-attachments/assets/9cbf7ef3-f3c0-49e7-9ae3-e600bbefd074
 
 
 
