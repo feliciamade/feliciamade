@@ -1,4 +1,6 @@
-https://github.com/user-attachments/assets/9cbf7ef3-f3c0-49e7-9ae3-e600bbefd074
+## I leafrned how to use <code><progress></code> to create a loading. 
+https://github.com/user-attachments/assets/daf87542-1b3e-40a8-b660-85129186798b
+
 
 
 
