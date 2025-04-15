@@ -11,7 +11,7 @@
 * **`max` Attribute:** This attribute specifies the total amount of work the task requires. The default value is 1.
 
 * **Indeterminate Progress Bars:** When the `value` attribute is not set, the browser typically displays a looping animation to indicate that a process is ongoing, but without a specific completion percentage. This is useful when you don't know how long a task will take.
-* 
+
 https://github.com/user-attachments/assets/efc2c7dd-0172-46ae-abe3-54a5cf92e98b
 
 
