@@ -1,5 +1,5 @@
 
-<img width="753" alt="Scre![Portfolio](https://github.com/user-attachments/assets/7cad97b3-37eb-4f2d-ab0c-1776e6c8de83)
+![Portfolio](https://github.com/user-attachments/assets/7cad97b3-37eb-4f2d-ab0c-1776e6c8de83)
 ![Game](https://github.com/user-attachments/assets/bfd9df65-2fc2-4f98-9fd3-5a6fb431eb7e)
 ![Project](https://github.com/user-attachments/assets/a59e5403-c129-4222-a630-613749e266ef)
 <img width="944" alt="Screenshot 2025-03-04 172933" src="https://github.com/user-attachments/assets/f0020c46-27d1-4577-acdc-ad3120a301bc" />
