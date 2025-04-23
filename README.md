@@ -1,7 +1,13 @@
-![Portfolio](https://github.com/user-attachments/assets/8d90b328-da1d-43e4-8008-c862487fe53e)
-![Resume-06](https://github.com/user-attachments/assets/7b5e35a9-8a9f-432a-aa67-be8dd1e58433)
-![🪄⋆｡ °✩](https://github.com/user-attachments/assets/5417c7e4-865b-4fc1-a319-4c06ade322f6)
-<img width="753" alt="Screenshot 2025-04-17 085354" src="https://github.com/user-attachments/assets/69defa38-ecdb-4c4a-a1e5-23075e004f28" />
+
+<img width="753" alt="Scre![Portfolio](https://github.com/user-attachments/assets/7cad97b3-37eb-4f2d-ab0c-1776e6c8de83)
+![Game](https://github.com/user-attachments/assets/bfd9df65-2fc2-4f98-9fd3-5a6fb431eb7e)
+![Project](https://github.com/user-attachments/assets/a59e5403-c129-4222-a630-613749e266ef)
+<img width="944" alt="Screenshot 2025-03-04 172933" src="https://github.com/user-attachments/assets/f0020c46-27d1-4577-acdc-ad3120a301bc" />
+![Screenshot 2025-03-05 202656](https://github.com/user-attachments/assets/f1c0dd03-e79f-408e-8b3f-356ebd4c4f16)
+![Screenshot 2025-03-05 202049](https://github.com/user-attachments/assets/a80ea176-78a9-46d3-bd9f-4f4e1490fd56)
+
+
+
 
 
 
