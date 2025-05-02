@@ -1,5 +1,6 @@
 ![Portfolio (1)-11](https://github.com/user-attachments/assets/113610c1-1684-423f-8936-802c901611e4)
-<img width="910" alt="Screenshot 2025-05-02 125529" src="https://github.com/user-attachments/assets/86cf13d7-7e18-4bc2-901d-52219e7225f0" />
+<img width="911" alt="Screenshot 2025-05-02 132225" src="https://github.com/user-attachments/assets/d4126fba-c780-4ff6-b17a-949533baf803" />
+
 <img width="893" alt="Screenshot 2025-05-01 125100" src="https://github.com/user-attachments/assets/2e5548e6-168d-46dd-82a0-1be73d8a583b" />
 ![Portfolio-07](https://github.com/user-attachments/assets/4bd97ac3-b955-4bc0-ac28-a7845f7db27b)
 <img width="944" alt="Screenshot 2025-03-04 172933" src="https://github.com/user-attachments/assets/f0020c46-27d1-4577-acdc-ad3120a301bc" />
