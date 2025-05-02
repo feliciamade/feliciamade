@@ -1,6 +1,6 @@
 ![Portfolio (1)-11](https://github.com/user-attachments/assets/113610c1-1684-423f-8936-802c901611e4)
 ![page-02](https://github.com/user-attachments/assets/276e3493-76ab-47bd-a9b9-9059b7a6b773)
-<img width="622" alt="Screenshot 2025-05-02 093246" src="https://github.com/user-attachments/assets/797eaf99-1d60-465b-96d2-84234c14ff4e" />
+![Gradient Wallpaper-18](https://github.com/user-attachments/assets/d2a0bad7-f282-4ad6-bc04-b9688bf03131)
 <img width="893" alt="Screenshot 2025-05-01 125100" src="https://github.com/user-attachments/assets/2e5548e6-168d-46dd-82a0-1be73d8a583b" />
 ![Portfolio-07](https://github.com/user-attachments/assets/4bd97ac3-b955-4bc0-ac28-a7845f7db27b)
 <img width="944" alt="Screenshot 2025-03-04 172933" src="https://github.com/user-attachments/assets/f0020c46-27d1-4577-acdc-ad3120a301bc" />
