@@ -1,5 +1,6 @@
 ![Portfolio (1)-11](https://github.com/user-attachments/assets/113610c1-1684-423f-8936-802c901611e4)
 ![Notebook-01](https://github.com/user-attachments/assets/dc2589d2-2b5e-4b05-a513-4a6ce7489a08)
+
 <img width="908" alt="idk" src="https://github.com/user-attachments/assets/9439831f-c17f-4271-a3e8-c076554a6b52" />
 <img width="893" alt="Screenshot 2025-05-01 125100" src="https://github.com/user-attachments/assets/2e5548e6-168d-46dd-82a0-1be73d8a583b" />
 ![Portfolio-07](https://github.com/user-attachments/assets/4bd97ac3-b955-4bc0-ac28-a7845f7db27b)
