@@ -1,5 +1,4 @@
-
-<img width="698" alt="Screenshot 2025-05-19 095611" src="https://github.com/user-attachments/assets/4f2455f0-dd19-42ed-b485-781433048af9" />
+<img width="748" alt="Screenshot 2025-05-19 170819" src="https://github.com/user-attachments/assets/f2def42a-a55c-4514-8abb-91c938cac9f0" />
 
 ![Screenshot 2025-05-11 161322](https://github.com/user-attachments/assets/d194b5c7-0255-4c18-8427-e7042de44808)
 <img width="908" alt="idk" src="https://github.com/user-attachments/assets/9439831f-c17f-4271-a3e8-c076554a6b52" />
