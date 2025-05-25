@@ -1,4 +1,5 @@
-<img width="245" alt="Screenshot 2025-05-25 002124" src="https://github.com/user-attachments/assets/9518b81b-d1d3-4cf4-b767-13119939987f" />
+
+![Senpai Says-01](https://github.com/user-attachments/assets/6690b54b-53bf-4aa7-8364-7b5a81518e58)
 
 <img width="748" alt="Screenshot 2025-05-19 170819" src="https://github.com/user-attachments/assets/f2def42a-a55c-4514-8abb-91c938cac9f0" />
 
