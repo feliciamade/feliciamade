@@ -1,4 +1,7 @@
 
+![Senpai Says-08](https://github.com/user-attachments/assets/8d63b2d2-d9c5-4585-9d39-17f5c6b5eed8)
+
+
 ![Senpai Says-06](https://github.com/user-attachments/assets/a6990dcd-a581-46d6-bb56-1e855b671352)
 
 ![Senpai Says-05](https://github.com/user-attachments/assets/272676b5-6fda-48f4-8c0e-157d5d7bd606)
