@@ -1,11 +1,7 @@
 
 ![Senpai Says-01](https://github.com/user-attachments/assets/6690b54b-53bf-4aa7-8364-7b5a81518e58)
 
-
-
-<img width="169" alt="Screenshot 2025-05-25 020756" src="https://github.com/user-attachments/assets/0ee34aed-abaf-4708-a1ba-6f9e35d9b2a3" />
-
-<img width="253" alt="Screenshot 2025-05-25 020847" src="https://github.com/user-attachments/assets/cc7e501e-c3cb-4604-a09e-e5b4012c389b" />
+![Senpai Says-02](https://github.com/user-attachments/assets/c4fe2d86-33b6-482f-b84a-6c8d23907853)
 
 <img width="748" alt="Screenshot 2025-05-19 170819" src="https://github.com/user-attachments/assets/f2def42a-a55c-4514-8abb-91c938cac9f0" />
 
