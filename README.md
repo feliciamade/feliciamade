@@ -3,6 +3,8 @@
 
 ![Senpai Says-02](https://github.com/user-attachments/assets/8e682599-4f98-4f45-9c60-bbdb79834798)
 
+<img width="342" alt="Screenshot 2025-05-25 033154" src="https://github.com/user-attachments/assets/9e5f4382-5159-43c8-b4aa-26dd49630ec6" />
+
 
 <img width="748" alt="Screenshot 2025-05-19 170819" src="https://github.com/user-attachments/assets/f2def42a-a55c-4514-8abb-91c938cac9f0" />
 
