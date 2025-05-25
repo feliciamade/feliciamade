@@ -1,5 +1,5 @@
+![Senpai Says-08](https://github.com/user-attachments/assets/de74fadb-f770-48c5-b678-d82d43ec65ec)
 
-![Senpai Says-08](https://github.com/user-attachments/assets/0073f0a5-2239-4217-bd46-2345b5d8581c)
 
 
 ![Senpai Says-06](https://github.com/user-attachments/assets/a6990dcd-a581-46d6-bb56-1e855b671352)
