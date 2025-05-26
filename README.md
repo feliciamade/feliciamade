@@ -7,8 +7,6 @@
 
 <img width="691" alt="Screenshot 2025-05-25 024224" src="https://github.com/user-attachments/assets/3d00c470-ac45-4968-9c9b-08e5a38a5f01" />
 
-<img width="344" alt="Screenshot 2025-05-25 041912" src="https://github.com/user-attachments/assets/62794446-5711-4f52-80c5-edd06d2719fa" />
-
 ![Senpai Says-04](https://github.com/user-attachments/assets/186b6c96-dbc5-4c00-a719-fd64be3f1637)
 
 
