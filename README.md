@@ -8,7 +8,6 @@
 
 ![Senpai Says-12](https://github.com/user-attachments/assets/915ffe59-4932-4e5f-9992-e5ab2739b773)
 
-![447319516-272676b5-6fda-48f4-8c0e-157d5d7bd606](https://github.com/user-attachments/assets/3f48fe0e-c926-41fa-89ac-7a99623a561d
 
 ![Senpai Says-04](https://github.com/user-attachments/assets/292ff8ff-61e1-4c9e-af35-256adbb19f09)
 
