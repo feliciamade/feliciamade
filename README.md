@@ -1,15 +1,22 @@
 
-![Senpai Says-08](https://github.com/user-attachments/assets/ea3de014-7e75-4759-8f6a-d774b8078030)
+![Senpai Says-08](https://github.com/user-attachments/assets/234abe6c-42bd-4242-ac5e-d54a048a8c2d)
 
-![Senpai Says-15](https://github.com/user-attachments/assets/90d30c73-605e-46a3-a548-c2a0297affbb)
 
-![Senpai Says-15](https://github.com/user-attachments/assets/a86f8f20-d0ee-493c-880b-d7243531b345)
+![Senpai Says-14](https://github.com/user-attachments/assets/b4b745f3-e777-466a-9d8e-9d9b5c571114)
 
-![Senpai Says-12](https://github.com/user-attachments/assets/758a3fff-18c7-4186-96d4-b23d364737f7)
+![Senpai Says-13](https://github.com/user-attachments/assets/9da7399b-d8da-435c-829c-67ee1553fb85)
 
-<img width="691" alt="Screenshot 2025-05-25 024224" src="https://github.com/user-attachments/assets/3d00c470-ac45-4968-9c9b-08e5a38a5f01" />
+![Senpai Says-12](https://github.com/user-attachments/assets/915ffe59-4932-4e5f-9992-e5ab2739b773)
 
-![Senpai Says-04](https://github.com/user-attachments/assets/186b6c96-dbc5-4c00-a719-fd64be3f1637)
+![447319516-272676b5-6fda-48f4-8c0e-157d5d7bd606](https://github.com/user-attachments/assets/3f48fe0e-c926-41fa-89ac-7a99623a561d
+
+![Senpai Says-04](https://github.com/user-attachments/assets/292ff8ff-61e1-4c9e-af35-256adbb19f09)
+
+
+
+
+
+
 
 
 
