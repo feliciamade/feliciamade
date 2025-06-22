@@ -2,8 +2,6 @@
 
 ![Bytelog-01](https://github.com/user-attachments/assets/a61f1ce7-7602-43a2-9473-78fa03a508dc)
 
-<img width="908" alt="Pokemon Fetch" src="https://github.com/user-attachments/assets/a9129faa-1dae-4ed7-9741-71caa8c53503" />
-
 
 
 
