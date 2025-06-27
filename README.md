@@ -2,7 +2,11 @@
 
 ![Bytelog-01](https://github.com/user-attachments/assets/a61f1ce7-7602-43a2-9473-78fa03a508dc)
 
-![Happy Colors](https://github.com/user-attachments/assets/9978bdcd-b1a5-4a8c-b5e5-a4bae214272a)
+<img width="908" alt="Pokemon Fetch" src="https://github.com/user-attachments/assets/1c93e8da-1f63-4a80-84c6-74106cb30019" />
+
+![Senpai Says-01](https://github.com/user-attachments/assets/0c284926-0bc7-4c54-b0c4-08dc822acecf)
+
+
 
 
 
