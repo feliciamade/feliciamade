@@ -1,6 +1,6 @@
 ## Current Projects
 
-https://github.com/user-attachments/assets/899c2194-718b-4b67-9e00-a64e053f15f4
+<img width="925" alt="Screenshot 2025-06-27 173951" src="https://github.com/user-attachments/assets/92a128b4-97eb-4fd7-8ead-f55a617a5327" />
 
 <img width="944" alt="Screenshot 2025-06-23 171102" src="https://github.com/user-attachments/assets/f7d600c2-4ef4-4b51-8085-d02b7b334f0c" />
 
